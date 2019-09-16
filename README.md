@@ -1,0 +1,2 @@
+# Informatika
+Тут было дз
